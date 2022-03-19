@@ -1,2 +1,0 @@
-# KFridriks.github.io
-Website
